@@ -8,3 +8,4 @@ Subject Name:BCS358C
 Academic Year:2024-25
 Mobile No:8105194120
 Email Id:ummekulsum2109@gmail.com
+My Date of Joining to GITW: 20th Sep-2023
